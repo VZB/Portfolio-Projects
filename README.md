@@ -14,4 +14,4 @@ If you have any questions or would like to discuss potential collaborations, fee
 
 📧 Email: vzb.data@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/vitoriazaninib
+🔗 LinkedIn: [linkedin.com/in/vitoriazaninib](https://www.linkedin.com/in/vitoriazaninib/)
